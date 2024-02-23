@@ -1,0 +1,1 @@
+# yudhisha-image-resource
